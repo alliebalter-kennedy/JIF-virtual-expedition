@@ -7,4 +7,4 @@ We delivered the course in two one-week segments and students were able to take 
 
 This course was originally hosted in Google Drive so that students could easily collaborate in the same document, so we recommend using this in Google Drive if possible. A [Google Drive version of the course is available here]([url](https://drive.google.com/drive/folders/1QY8tYyHddSGzoEAyU5GwcshcwYHZTMGw?usp=sharing)), but may not be available indefinitely. 
 
-Please reach out to Arianna Varuolo-Clarke (EMAIL) and/or Allie Balter-Kennedy (EMAIL) if you are having trouble accessing these resources or have any questions! We'd also love to hear about how you are using any or all of these resources - we created them to be shared and hope that you are able to bring the Juneau Icefield to your own classroom! 
+Please reach out to Arianna Varuolo-Clarke (avclarke@ucar.edu) and/or Allie Balter-Kennedy (abalter@ldeo.columbia.edu) if you are having trouble accessing these resources or have any questions! We'd also love to hear about how you are using any or all of these resources - we created them to be shared and hope that you are able to bring the Juneau Icefield to your own classroom! 
